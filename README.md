@@ -1,0 +1,128 @@
+# Carolina Gaitán - La Gaita、Mauro Castillo、Adassa、Rhenzy Feliz、Diane Guerrero、Stephanie Beatriz、Encanto - Cast – 秘密のブルーノ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+We don’t talk about Bruno,
+no, no, no
+We don’t talk about Bruno, but
+It was my wedding day
+(it was our wedding day)
+We were getting ready
+And there wasn’t a cloud
+in the sky
+(no clouds allowed in the sky)
+Bruno walks in with a
+mischievous grin
+(thunder)
+You telling this story or am I?
+(I’m sorry, mi vida, go on)
+Bruno says,
+“It looks like rain”
+(why did he tell us?)
+In doing so, he floods my brain
+(Abuela, get the umbrellas)
+Married in a hurricane
+(what a joyous day, but anyway)
+We don’t talk about Bruno,
+no, no, no
+We don’t talk about Bruno
+Hey, grew to live in fear of
+Bruno stuttering or stumbling
+I can always hear him sort of
+muttering and mumbling
+I associate him with the
+sound of falling sand
+(tss, tss, tss)
+It’s a heavy lift with a gift
+so humbling
+Always left Abuela and
+the family fumbling
+Grappling with prophecies
+they couldn’t understand
+Do you understand?
+A seven-foot frame,
+rats along his back
+When he calls your name
+it all fades to black
+Yeah, he sees your dreams
+and feasts on your screams
+(hey)
+We don’t talk about Bruno,
+no, no, no
+(no no)
+We don’t talk about Bruno
+(we don’t talk about Bruno)
+He told me my fish would die,
+the next day, dead
+(no, no)
+He told me I’d grow a gut
+and just like he said
+(no, no)
+He said that all my hair
+would disappear,
+now, look at my head
+(no, no)
+Your fate is sealed
+when your prophecy is read
+He told me that
+the life of my dreams
+Would be promised
+and someday be mine
+He told me that
+my power would grow
+Like the grapes that
+thrive on the vine
+(oye, Mariano’s on his way)
+He told me that
+the man of my dreams
+Would be just out of reach,
+betrothed to another
+It’s like I hear him now
+(hey, sis)
+I want not a sound out of you
+(it’s like I can hear him now)
+I can hear him now
+Um, Bruno
+Yeah, about that Bruno
+I really need to know
+about Bruno
+Give me the truth and
+the whole truth, Bruno
+(Isabela,
+your boyfriend’s here)
+Time for dinner
+A seven-foot frame
+(it was my wedding day)
+Rats along his back
+(it was our wedding day)
+(we were getting ready)
+When he calls your name,
+it all fades to black
+(and there wasn’t a cloud
+in the sky)
+(No clouds allowed in the sky)
+Yeah, he sees your dreams and
+feasts on your screams
+(Bruno walks in with a
+mischievous grin)
+You telling this story or am I?
+Oye, Mariano’s on his way
+Bruno says,
+“It looks like rain”
+(a seven-foot frame,
+rats along his back)
+In doing so,
+he floods my brain
+(when he calls your name,
+it all fades to black)
+Married in a hurricane
+(yeah, he sees your dreams and
+feasts on your screams)
+He’s here
+Don’t talk about Bruno
+Why did I talk about Bruno?
+Not a word about Bruno
+I never should’ve
+brought up Bruno
+```
